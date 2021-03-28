@@ -2,7 +2,7 @@
 
 > This is my goals. I write this notes because, the memory of human is limited. So, I make this notes for remember one time, I have a dream and Goals. I hope Allah ta'ala grant my du'a 🤲
 
-## The year 2021
+## The Year 2021
 
 > In this year, I have more targets about financial target, skill target, upgrading self mentality target and religion target. I will share on more ways :
 
